@@ -12,4 +12,4 @@
     - **>3** (2021) - Разработчик;
     - **Hoteru** (2021-СЕЙЧАС) - Разработчик;
     - **Ethereal** (2021) - Разработчик;
-<img src=https://sun9-53.userapi.com/impg/3mBJVD31wqTpNtXadPvNIIKcrZ-tEvi4g3X0cw/D_TMsvAibPo.jpg?size=1069x842&quality=96&sign=0b2071c73b644ecb75bcc8ba89565f34&type=album>
+    - 
